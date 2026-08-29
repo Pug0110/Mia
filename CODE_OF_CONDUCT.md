@@ -1,4 +1,4 @@
-# Code of Conduct – ichigochan
+# Code of Conduct – Mia
 
 ## アドミン権
 
